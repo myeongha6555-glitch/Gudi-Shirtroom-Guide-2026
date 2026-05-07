@@ -34,5 +34,6 @@
 
 👉 **[구디셔츠룸 최신 순위 및 예약 센터 바로가기](https://gudi-shirtroom.isweb.co.kr)**
 
+Looking for Gudi business district information? [Check the 2026 Gudi Live Report (Notion)](https://melodic-utahraptor-134.notion.site/2026-359b439160b380d08bd5e7e9874f8e71?source=copy_link)
 ---
 *본 저장소는 매주 신규 업체 정보와 시스템 변화를 모니터링하여 최신화됩니다.*
